@@ -15,5 +15,5 @@
 Учень 9 класу 😊
 
 ## ☕ Підтримай мене
-[Buy me a tea](buymeacoffee.com/smaillyguy)
+[Buy me a tea](https://buymeacoffee.com/smaillyguy)
 
